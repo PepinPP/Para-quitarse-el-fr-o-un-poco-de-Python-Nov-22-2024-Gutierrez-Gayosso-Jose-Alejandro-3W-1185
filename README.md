@@ -1,0 +1,1 @@
+# Para-quitarse-el-fr-o-un-poco-de-Python-Nov-22-2024-Gutierrez-Gayosso-Jose-Alejandro-3W-1185
